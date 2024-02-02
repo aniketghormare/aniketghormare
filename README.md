@@ -5,7 +5,7 @@
 
 - 🌱 Experienced Full Stack Web Developer proficient in front-end and back-end technologies, specializing in building robust and scalable web applications.
 
-- 👨‍💻 All of my projects are available at [https://aniketghormare.github.io/](https://aniketghormare.github.io/)
+- 👨‍💻 All of my projects are available at [mygithub](https://aniketghormare.github.io/)
 
 - 📫 How to reach me **aniketghormare62@gmail.com**
 
