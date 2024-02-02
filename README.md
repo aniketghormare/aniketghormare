@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aniketghormare62@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13foJs_pga6A6vF-wAl1gQ8jLGi3Ud1gd/view?usp=sharing](https://drive.google.com/file/d/13foJs_pga6A6vF-wAl1gQ8jLGi3Ud1gd/view?usp=sharing)
+- 📄 Know about my experiences [MyResume](https://drive.google.com/file/d/13foJs_pga6A6vF-wAl1gQ8jLGi3Ud1gd/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
